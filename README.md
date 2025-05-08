@@ -15,3 +15,5 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 - Pronouns: As seen on my page I go by They/Them, but honestly I don't mind what you call me I go by the pronouns of the character I play as
 
 - Fun fact: I'm a cat person, and my Roblox avatar is a cat!
+
+- Uhh I like some ships but I would say I enjoy PayCheck, DoubleFedora, PizzaDebt, Noob666, and like Semi-Platonic PartyBeetle.
