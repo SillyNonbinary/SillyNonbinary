@@ -16,4 +16,10 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 - Fun fact: I'm a cat person, and my Roblox avatar is a cat!
 
-- Uhh I like some ships but I would say I enjoy PayCheck, DoubleFedora, PizzaDebt, Noob666, and like Semi-Platonic PartyBeetle.
+- Uhh I like some ships but I would say I enjoy PayCheck, DoubleFedora, PizzaDebt, Noob666, and like Semi-Platonic PartyBeetle.,
+
+- I don't speak about my ships though I welcome almost any Legal and non problematic ship..
+
+- You will not see me being weird about shipping.
+
+- I don't mind if you sit by me with a ship in your name that involves the character I am
