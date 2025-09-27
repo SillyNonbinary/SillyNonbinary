@@ -2,7 +2,7 @@ ABOUT ME IN PONYTOWN
 
 A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
--I'm a Minor. Please Interact with that in mind, I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you
+-I'm a Minor. Please Interact with that in mind (As in a teen not like a child.), I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you
 
 -Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, Elliot, and Non. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most)
 
