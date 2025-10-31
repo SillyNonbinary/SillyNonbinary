@@ -23,9 +23,9 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 - Fun fact: I'm a cat person! I also like foxes.
 
-- Uhh I like some ships but I would say I enjoy PayCheck, DOUBLEPIZZA/GLORYPIZZA, DoubleFedora, PizzaDebt, Noob666, and like Semi-Platonic PartyBeetle.,
+- Uhh I like some ships but I would say I enjoy PayCheck, [DOUBLEPIZZA/GLORYPIZZA], DoubleFedora, PizzaDebt, PAST Noob666, [DAISY1337], and like some Semi-Platonic PartyBeetle, Though not that much.,
 
-- I don't speak about my ships though I welcome almost any Legal and non problematic ship..
+- I don't speak about my ships Unless you ask, though I welcome any Legal and non problematic ships.. except I dislike a few
 
 - You will not see me being weird about shipping.
 
