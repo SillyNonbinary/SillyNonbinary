@@ -2,7 +2,7 @@ ABOUT ME IN PONYTOWN
 
 A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
--I'm a Minor. Please Interact with that in mind, I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you
+-I'm Still technically a Minor not saying my age, because that's my personal info?. Please Interact with that in mind, I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you
 
 -I mainly stay on safe server 2 now because it's where my friends stay and it's less crowded. But you may know me for sitting by @APredictableNullity at the bakery or tree by the beach
 
