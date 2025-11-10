@@ -6,10 +6,9 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 -I mainly stay on safe server 2 now because it's where my friends stay and it's less crowded. But you may know me for sitting by @APredictableNullity at the bakery or tree by the beach
 
--Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, Elliot, and Non. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most)
+-Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, Elliot, and Pizza guy. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most. Pizza guy is added on because the same reason..)
 
-- Games I have Main inteterst in right now: Regretevator, Forsaken, Dandy's world, Block Tales[BIGGG INTEREST], Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game and Evade.
-
+- Games I have Main inteterst in right now: Regretevator, Forsaken, Dandy's world, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta[BIGGG INTEREST], and Evade.
 
 - Long note for this: Uh please don't make self harm jokes or that type of stuff near me it makes me uncomfortable.
   I'm fine with small jokes but when it's all you say it makes me uneasy and most likely for me to not talk or reply to you, for very personal reasons. (This includes close friends as well please make sure it's obviously a joke)
@@ -21,11 +20,11 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 - Pronouns: As seen on my page I go by They/Them, but honestly I don't mind what you call me I go by the pronouns of the character I play as
 
-- Fun fact: I'm a cat person! I also like foxes.
+- Fun fact: I'm a cat person! I also like foxes. I personally Favorite Red Pandas right now they're so cute.
 
 - Uhh I like some ships but I would say I enjoy PayCheck, [DOUBLEPIZZA/GLORYPIZZA], DoubleFedora, PizzaDebt, PAST Noob666, [DAISY1337], and like some Semi-Platonic PartyBeetle, Though not that much.,
 
-- I don't speak about my ships Unless you ask, though I welcome any Legal and non problematic ships.. except I dislike a few
+- I don't speak about my ships Unless you ask, though I welcome any [Legal and non problematic ships..] except I dislike a few
 
 - You will not see me being weird about shipping.
 
