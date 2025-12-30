@@ -2,7 +2,7 @@ ABOUT ME IN PONYTOWN
 
 A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
--Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, Elliot, and Blot. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most. blot is added on because I just favorite blot and Will make a pony of blot soon?..)
+-Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, and Elliot. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most.
 
 -I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you!!
 
@@ -10,7 +10,7 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 - I'm not that chatty I will sit with you silently most the time or talk in whispers
 
-- Games I have Main inteterst in right now: Regretevator, Forsaken, Dandy's world, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta[BIGGG INTEREST], and Evade.
+- Games I have Main inteterst in right now: Regretevator, Forsaken, Dandy's world, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta, PUPI MIDNIGHT MUNCHIES [BIGGG INTEREST], and Evade.
 
 
 - Long note for this: Uh please don't make self harm jokes or that type of stuff near me it makes me uncomfortable.
