@@ -23,7 +23,7 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 - Pronouns: As seen on my page I go by They/Them, but honestly I don't mind what you call me I go by the pronouns of the character I play as
 
-- Fun fact: I'm a cat person! I also like foxes. I personally Favorite Red Pandas right now they're so cute.
+- Fun fact: I'm a cat person! I also like foxes. I personally Favorite orcas and Sharks right now
 
 - Uhh I like some ships but I would say I enjoy PayCheck, [DOUBLEPIZZA/GLORYPIZZA], DoubleFedora, PizzaDebt, PAST Noob666, [DAISY1337], and like some Semi-Platonic PartyBeetle, Though not that much.,
 
