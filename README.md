@@ -2,7 +2,7 @@ ABOUT ME IN PONYTOWN
 
 A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
--Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, and Elliot. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most.
+-Heyo!! I’m Silly_Nonbinary also Know as Ebony, Silly, and Elliot. ANY NAME WORKS EVEN IF IT'S THE CHARACTER I AM ON PONY TOWN (Elliot is there mainly because he's the character I use the most. and I favorite Elliot)
 
 -I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you!!
 
