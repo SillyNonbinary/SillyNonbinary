@@ -8,7 +8,7 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 -I mainly stay on safe server 2 now because it's where my friends stay and it's less crowded. But you may know me for sitting by APredictableNullity at the bakery or tree by the beach
 
-- I'm not that chatty I will sit with you silently most the time or talk in whispers
+- I'm not that chatty I will sit with you silently most the time or talk in whispers, if I have dni in my name you may still C+H me!! I'll just be quiet..!
 
 - Games I have Main inteterst in right now: Regretevator, Forsaken, Dandy's world, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta, PUPI MIDNIGHT MUNCHIES [BIGGG INTEREST], and Evade.
 
