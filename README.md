@@ -6,7 +6,7 @@ A SMALL INTRO TO ME WITHOUT NEEDING THE STRAWPAGE!!
 
 -I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you!!
 
--I mainly stay on safe server 2 now because it's where my friends stay and it's less crowded. But you may know me for sitting by APredictableNullity at the bakery or tree by the beach
+-I mainly stay on the safe servers Mainly 1 now. But you may know me for sitting by APredictableNullity at the bakery or tree by the beach
 
 - I'm not that chatty I will sit with you silently most the time or talk in whispers, if I have dni in my name you may still C+H me!! I'll just be quiet..!
 
