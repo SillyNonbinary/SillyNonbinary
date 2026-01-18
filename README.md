@@ -11,9 +11,13 @@ Elliot is there mainly because he's the character I use the most. and I favorite
 
 -I'm mainly afk on Ponytown one way to tell if I am is looking at my name, W2I is I'm online, I'm just watching something on another tab and I'll respond still, AFK is I'm fully away
 
--Pronouns: As seen on my page I go by They/Them, but honestly I don't mind what you call me I go by the pronouns of the character I play as
+-As seen on my page I go by They/Them, but honestly I don't mind what you call me I go by the pronouns of the character I play as
 
--Fun fact: I'm a cat person!
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+FUNFACTS
+
+-I'm a cat person!
 
 -My favorite color is Light pink.
 
