@@ -1,7 +1,7 @@
 A SMALL INTRO TO ME!!
 
 Heyo!! I’m Silly also known as Pizza guy or Elliot 
-###### Elliot is there mainly because he's the character I use the most. and I favorite Elliot and Pizza guy
+Elliot is there mainly because he's the character I use the most. and I favorite Elliot and Pizza guy
 
 -I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you!!
 
