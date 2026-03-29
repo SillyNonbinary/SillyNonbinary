@@ -1,6 +1,6 @@
 A SMALL INTRO TO ME!!
 
-Heyo!! I’m Silly also known as Pizza guy or Elliot 
+Heyo!! I’m Silly also known as Pizza guy or Elliot, Tourist, Lucius, and Light 
 Elliot is there mainly because he's the character I use the most. and I favorite Elliot and Pizza guy
 
 -I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you!!
@@ -19,7 +19,7 @@ FUNFACTS
 
 -I'm a cat person!
 
--My favorite color is Light pink.
+-My favorite color is Light pink and lavender.
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
