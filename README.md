@@ -1,7 +1,7 @@
 A SMALL INTRO TO ME!!
 
-Heyo!! I’m Silly also known as Pizza guy or Elliot, Tourist, Lucius, and Light 
-Elliot is there mainly because he's the character I use the most. and I favorite Elliot and Pizza guy
+Heyo!! I’m Silly also known as Pizza guy or Elliot, Lucius,
+I favorite Elliot and Pizza guy
 
 -I like crowning ponies of characters I find cool or favorite. then again If you look cool and I see you I will crown you!!
 
@@ -23,16 +23,16 @@ FUNFACTS
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-Uh games!
+Uh games! forsaken was an old interest the fandom is weird.
 
--Games I have Main inteterst in right now: Regretevator, Forsaken, Dandy's world, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta **BIGGG INTEREST** PUPI MIDNIGHT MUNCHIES, and Evade.
+-Games I have Main inteterst in right now: Regretevator, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta, PUPI MIDNIGHT MUNCHIES, and Evade.
 
 -I don't like the fandom of some games..since some of them are toxic.
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 SHIPS
 
--Uhh I like some ships but I would say I enjoy PayCheck, **DOUBLEPIZZA/GLORYPIZZA**, DoubleFedora, PizzaDebt, PAST Noob666, **DAISY1337**
+-Uhh I like some ships but I would say I enjoy **DOUBLEPIZZA/GLORYPIZZA**, **DAISY1337**
 
 -I don't speak about my ships Unless you ask, though I welcome any *[Legal and non problematic ships..]* except I dislike a few
 
