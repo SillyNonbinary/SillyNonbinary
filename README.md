@@ -23,7 +23,9 @@ FUNFACTS
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-Uh games! forsaken was an old interest the fandom is weird.
+Uh games! 
+forsaken was an old interest the fandom is weird.
+I'm iffy with dandy's world tbh. cooler games exist I only play if asked by friends.
 
 -Games I have Main inteterst in right now: Regretevator, Block Tales, Work At A Pizza Place, Dragon Adventures, FNAF, Pizza Game Beta, PUPI MIDNIGHT MUNCHIES, and Evade.
 
