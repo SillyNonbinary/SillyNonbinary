@@ -74,7 +74,7 @@ Stanley(Spiritfarer)
 
 Stanley(thestanleyparable)
 
-<img width="299" height="168" alt="download (4)" src="https://github.com/user-attachments/assets/d9dec276-648a-4a7c-a380-1febfd2981cf" />
+<img width="999" height="468" alt="download (4)" src="https://github.com/user-attachments/assets/d9dec276-648a-4a7c-a380-1febfd2981cf" />
 
 
 
