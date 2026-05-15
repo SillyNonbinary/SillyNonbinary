@@ -6,6 +6,10 @@ A SMALL INTRO TO ME!!
 
 Heyo!! I’m Silly also known as Pizza guy or Elliot
 
+I crown silly people I find cool or characters I like!
+
+If I crown you as Pizza guy I will most likely say you look pantastic or some other stupid pun that is saying you look cool
+
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 FUNFACTS
