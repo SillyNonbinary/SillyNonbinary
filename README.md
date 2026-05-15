@@ -24,6 +24,13 @@ Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies,
 
 SHIPS
 
+-Daisy1337 (Daisy x Guest 1337)
+
+-GloryPizza (Elliot x Pizza guy)
+
+-Seasentry (Lucius x William)
+
+-ContractHunting (Lance x Contractee)
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
