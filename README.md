@@ -12,20 +12,22 @@ I favorite Elliot and Pizza guy
 
 FUNFACTS
 
--I'm a cat person!
+-I'm a cat person! 
+Which according to the game Drav actually likes cats
 
--My favorite color is Light pink and lavender.
+-My favorite color is Light pink, Blue, and lavender.
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+Uh games!
+Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world, Spiritfarer, Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray.
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-Uh games! 
-
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 SHIPS
 
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
-<img width="383" height="278" alt="Dravv" src="https://github.com/user-attachments/assets/72364e60-8f47-4415-8a18-032364b6ba6a" />
-<img width="402" height="367" alt="download (1)" src="https://github.com/user-attachments/assets/ac8bfd60-b02d-4841-8480-c1a56e2f9834" />
+<img width="683" height="378" alt="Dravv" src="https://github.com/user-attachments/assets/72364e60-8f47-4415-8a18-032364b6ba6a" />
+<img width="602" height="367" alt="download (1)" src="https://github.com/user-attachments/assets/ac8bfd60-b02d-4841-8480-c1a56e2f9834" />
