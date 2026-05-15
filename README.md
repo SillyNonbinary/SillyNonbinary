@@ -74,7 +74,8 @@ Stanley(Spiritfarer)
 
 Stanley(thestanleyparable)
 
-<img width="999" height="467" alt="download (1)" src="https://github.com/user-attachments/assets/12e39723-de96-46a2-8eef-29788b5f32f7" />
+<img width="736" height="414" alt="SAUCE IS FUEL (pizza guy)" src="https://github.com/user-attachments/assets/bbb047f8-1882-40be-9fb2-207f65f7f3eb" />
+
 
 
 
