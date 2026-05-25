@@ -24,6 +24,7 @@ Which according to the game Drav actually likes cats
 Uh games!
 Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world, Spiritfarer, Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray.
 
+not a big forsaken fan I only play if friends ask me.
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 SHIPS
@@ -34,7 +35,25 @@ SHIPS
 
 -Seasentry (Lucius x William)
 
--ContractHunting (Lance x Contractee)
+-ContractHunting (Lance x Contractee I made this up)
+
+Soldier x Lance...(For friend.)
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+SHIPS I hate/ don't care for.
+
+PIZZA BURGER. (more targeting the toxic stuff on the forsaken side and those people who make elliot a bitch or a tiny ass twink or make 007n7 a twink/tiny ahh man. I will hide these kinds of shippers. do not interact at all if you are in these catagories.)
+
+toxicpizza (Just don't talk to me. I hate it it makes me annoyed when I see it)
+
+I hate Ichance. (I dislike Itrapped being only seen as forsaken he's a hacker and you should do research if you think he's only forsaken.)
+
+I would rather die than like any killer x Elliot (Not including forsaken skins.)
+ 
+guest 1337 x anyone other than Daisy (HE'S MARRIED... Not like I'll hate or anything just makes no sense to me unless it's an au thing)
+
+I don't care for 007n7 ships other than 118o8 or another hacker.
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
