@@ -23,6 +23,7 @@ Spiritfarer}} $$
 $$ \color{#fcbac8}{ \ \text{Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings}} $$
 
 $$ \color{#fcbac8}{ \ \text{ Not a big forsaken fan}} $$
+
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 $$ \color{#fcbac8}{ \ \text{SHIPS}} $$
