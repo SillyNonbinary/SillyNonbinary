@@ -34,6 +34,7 @@ $$ \color{#fcbac8}{ \ \text{-ContractHunting (Lance x Contractee I made this up)
 
 $$ \color{#fcbac8}{ \ \text{Soldier x Lance...(For friend.)}} $$
 
+
 -ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-
 
    <img width="883" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b"/>
