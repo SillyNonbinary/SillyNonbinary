@@ -35,7 +35,7 @@ Soldier x Lance...(For friend.)
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
-  <img width="735" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b" />
+  <img width="783" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b" />
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
@@ -77,7 +77,8 @@ TUMOR (Badthings)
 
 Stanley(thestanleyparable)
 
-<img width="735" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/75c29a63-0b7d-4130-b7ce-8ff8426e64d5" />
+<img width="800" height="790" alt="bad things (1)" src="https://github.com/user-attachments/assets/3513a07f-a85b-4b4c-bc83-7022c5650d95" />
+
 
 
 
