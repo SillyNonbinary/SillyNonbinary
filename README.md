@@ -77,7 +77,7 @@ TUMOR (Badthings)
 
 Stanley(thestanleyparable)
 
-<img width="900" height="800" alt="bad things (1)" src="https://github.com/user-attachments/assets/3513a07f-a85b-4b4c-bc83-7022c5650d95" />
+<img width="1000" height="800" alt="bad things (1)" src="https://github.com/user-attachments/assets/3513a07f-a85b-4b4c-bc83-7022c5650d95" />
 
 
 
