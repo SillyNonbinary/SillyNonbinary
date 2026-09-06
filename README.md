@@ -17,9 +17,9 @@ $$ \color{#fcbac8}{ \ \text{-My favorite color is Light pink, Blue, and lavender
 
 $$ \color{#fcbac8}{ \ \text{Uh games!
 Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world,
-Spiritfarer, Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings
+Spiritfarer, Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings}} $$
 
-not a big forsaken fan I only play if friends ask me}} $$
+$$ \color{#fcbac8}{ \ \text{not a big forsaken fan I only play if friends ask me}} $$
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 $$ \color{#fcbac8}{ \ \text{SHIPS}} $$
