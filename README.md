@@ -2,16 +2,16 @@
 
 -ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-
 
-$$ \color{#fcbac8}{ \ \text{ A SMALL INTRO TO ME!!}} $$
+$$ \color{#5dabdc}{ \ \text{ A SMALL INTRO TO ME!!}} $$
 
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-$$ \color{#fcbac8}{ \ \text{FUNFACTS}} $$
+$$ \color{#5dabdc}{ \ \text{FUNFACTS}} $$
 
-$$ \color{#fcbac8}{ \ \text{-I'm a cat person!}} $$
+$$ \color{#5dabdc}{ \ \text{-I'm a cat person!}} $$
 
-$$ \color{#fcbac8}{ \ \text{-My favorite color is Light pink, Blue, and lavender.}} $$
+$$ \color{#5dabdc}{ \ \text{-My favorite color is Light pink, Blue, and lavender.}} $$
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
@@ -26,32 +26,32 @@ $$ \color{#fcbac8}{ \ \text{ Not a big forsaken fan only play when asked}} $$
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-$$ \color{#fcbac8}{ \ \text{SHIPS}} $$
+$$ \color{#5dabdc}{ \ \text{SHIPS}} $$
 
-$$ \color{#fcbac8}{ \ \text{-Daisy1337 (Daisy x Guest 1337)}} $$
+$$ \color{#5dabdc}{ \ \text{-Daisy1337 (Daisy x Guest 1337)}} $$
 
-$$ \color{#fcbac8}{ \ \text{-GloryPizza (Elliot x Pizza guy)}} $$
+$$ \color{#5dabdc}{ \ \text{-GloryPizza (Elliot x Pizza guy)}} $$
 
-$$ \color{#fcbac8}{ \ \text{-Seasentry (Lucius x William)}} $$
+$$ \color{#5dabdc}{ \ \text{-Seasentry (Lucius x William)}} $$
 
-$$ \color{#fcbac8}{ \ \text{-ContractHunting (Lance x Contractee I made this up)}} $$
+$$ \color{#5dabdc}{ \ \text{-ContractHunting (Lance x Contractee I made this up)}} $$
 
-$$ \color{#fcbac8}{ \ \text{Soldier x Lance...(For friend.)}} $$
+$$ \color{#5dabdc}{ \ \text{Soldier x Lance...(For friend.)}} $$
 
 
--ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-
+$$ \color{#fcbac8}{ \ \text{-ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-}} $$
 
    <img width="883" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b"/>
 
--ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-
+$$ \color{#fcbac8}{ \ \text{-ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-}} $$
 
-$$ \color{#fcbac8}{ \ \text{FAVORITE CHARACTERS}} $$
+$$ \color{#5dabdc}{ \ \text{FAVORITE CHARACTERS}} $$
 
-$$ \color{#fcbac8}{ \ \text{-Qiosk(Pizzagamebeta)}} $$
+$$ \color{#5dabdc}{ \ \text{-Qiosk(Pizzagamebeta)}} $$
 
-$$ \color{#fcbac8}{ \ \text{-Pizza guy(Pizzagamebeta)}} $$
+$$ \color{#5dabdc}{ \ \text{-Pizza guy(Pizzagamebeta)}} $$
 
-$$ \color{#fcbac8}{ \ \text{-Drav(Pizzagamebeta)}} $$
+$$ \color{#5dabdc}{ \ \text{-Drav(Pizzagamebeta)}} $$
 
 $$ \color{#fcbac8}{ \ \text{-Elliot Builder(Workatapizzaplace)}} $$
 
@@ -89,4 +89,4 @@ $$ \color{#fcbac8}{ \ \text{-Stanley(thestanleyparable)}} $$
 
 
 
--ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-
+$$ \color{#fcbac8}{ \ \text{-ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ-}} $$
