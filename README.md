@@ -35,7 +35,7 @@ Soldier x Lance...(For friend.)
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
-<img width="735" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b" />
+  <img width="735" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b" />
 
 *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
@@ -77,8 +77,7 @@ TUMOR (Badthings)
 
 Stanley(thestanleyparable)
 
-<img width="847" height="382" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/ab681843-0db5-4821-aa75-e241f19a4aec" />
-
+<img width="735" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/75c29a63-0b7d-4130-b7ce-8ff8426e64d5" />
 
 
 
