@@ -17,10 +17,13 @@ $$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺�
 
 $$ \color{#fcbac8}{ \ \text{Uh games!}} $$
 
+
 $$ \color{#fcbac8}{ \ \text{Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world,
 Spiritfarer}} $$
 
+
 $$ \color{#fcbac8}{ \ \text{Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings}} $$
+
 
 $$ \color{#fcbac8}{ \ \text{ Not a big forsaken fan only play when asked}} $$
 
