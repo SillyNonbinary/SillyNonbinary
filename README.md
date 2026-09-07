@@ -1,5 +1,5 @@
 $$ \color{#451a0b}{ \ \text{-'You think I'm a damn joke, don't you? Just a punchline to walk in shadows!'
-'You think you don't need me. Really? 𝐑𝐞𝐚𝐥𝐥𝐲'}} $$
+'You think you don't need me. Really? 𝐑𝐞𝐚𝐥𝐥𝐲?'}} $$
 
 <img width="998" height="590" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/436c32b1-29d5-48c0-adbf-b58d0256dd4a" />
 
