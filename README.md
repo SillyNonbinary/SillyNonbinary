@@ -3,7 +3,7 @@ $$ \color{#451a0b}{ \ \text{-'You think I'm a damn joke, don't you? Just a punch
 
 <img width="998" height="590" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/436c32b1-29d5-48c0-adbf-b58d0256dd4a" />
 
-$$ \color{#451a0b}{ \ \text{-'I MADE YOU! I 𝙢𝙖𝙙𝙚 you Andrew. I...'}} $$
+$$ \color{#451a0b}{ \ \text{-'I MADE YOU! I}} $$ $$ \color{#7c0000}{ \ \text{𝙢𝙖𝙙𝙚}} $$ $$ \color{#451a0b}{ \ \text{you Andrew. I...'}} $$
 
 $$ \color{#fcbac8}{ \ \text{ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
 
