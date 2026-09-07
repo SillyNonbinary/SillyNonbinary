@@ -1,12 +1,10 @@
 "You think I'm a damn joke, don't you? Just a punchline to walk in shadows!"
 "You think you don't need me. Really? Really?"
 
-"I MADE YOU! I ***made*** you Andrew. I..."
-
 <img width="998" height="590" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/436c32b1-29d5-48c0-adbf-b58d0256dd4a" />
 
 $$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
-
+"I MADE YOU! I ***made*** you Andrew. I..."
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 $$ \color{#5dabdc}{ \ \text{FUNFACTS}} $$
