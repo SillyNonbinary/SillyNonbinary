@@ -1,4 +1,4 @@
-<img width="998" height="680" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/436c32b1-29d5-48c0-adbf-b58d0256dd4a" />
+<img width="998" height="590" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/436c32b1-29d5-48c0-adbf-b58d0256dd4a" />
 
 $$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
 
@@ -18,7 +18,10 @@ $$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺�
 $$ \color{#fcbac8}{ \ \text{Uh games!}} $$
 
 
-$$ \color{#fcbac8}{ \ \text{Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world,
+$$ \color{#fcbac8}{ \ \text{Favorite games: Pizza Game, Work ata pizza place, Evade.}} $$
+
+
+$$ \color{#fcbac8}{ \ \text{Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world,
 Spiritfarer}} $$
 
 
