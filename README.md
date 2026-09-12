@@ -27,19 +27,19 @@ $$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺�
 $$ \color{#fcbac8}{ \ \text{Uh games!}} $$
 
 
-$$ \color{#fcbac8}{ \ \text{Favorite games: Pizza Game, Work ata pizza place, Evade.}} $$
+$$ \color{#5dabdc}{ \ \text{Favorite games: Pizza Game, Work ata pizza place, Evade.}} $$
 
 
-$$ \color{#fcbac8}{ \ \text{Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world
+$$ \color{#5dabdc}{ \ \text{Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world
 Spiritfarer}} $$
 
 
-$$ \color{#fcbac8}{ \ \text{Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings}} $$
+$$ \color{#5dabdc}{ \ \text{Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings}} $$
 
 
-$$ \color{#fcbac8}{ \ \text{ Not a big forsaken fan only play when asked}} $$
+$$ \color{#5dabdc}{ \ \text{ Not a big forsaken fan only play when asked}} $$
 
-$$ \color{#5dabdc}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
+$$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
