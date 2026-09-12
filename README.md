@@ -1,79 +1,90 @@
-$$ \color{#451a0b}{ \ \text{"You think I'm a damn joke, don't you? Just a punchline to walk in shadows!'
-'You think you don't need me. Really?}} $$ $$ \color{#7c0000}{ \ \text{𝐑𝐞𝐚𝐥𝐥𝐲?"}} $$
+<img width="998" height="580" alt="Pizza guyyy!!!! and divine" src="https://github.com/user-attachments/assets/43b4d191-b295-4389-beb6-37eb48f520c9" />
 
-<img width="998" height="590" alt="Screenshot_2026-03-08_144548" src="https://github.com/user-attachments/assets/436c32b1-29d5-48c0-adbf-b58d0256dd4a" />
+*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
 
-$$ \color{#451a0b}{ \ \text{"I MADE YOU! I}} $$ $$ \color{#7c0000}{ \ \text{𝙢𝙖𝙙𝙚 you}} $$ $$ \color{#451a0b}{ \ \text{Andrew.}} $$
+A SMALL INTRO TO ME!!
 
+Heyo!! I’m Silly also known as Pizza guy or Elliot
 
-$$ \color{#7c0000}{ \ \text{I..."}} $$
+I crown silly people I find cool or characters I like!
 
-
-$$ \color{#fcbac8}{ \ \text{ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-$$ \color{#5dabdc}{ \ \text{FUNFACTS}} $$
-
-$$ \color{#5dabdc}{ \ \text{-I'm a cat person!}} $$
-
-$$ \color{#5dabdc}{ \ \text{-My favorite color is Light pink, Blue, and lavender.}} $$
-
-$$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
+If I crown you as Pizza guy I will most likely say you look pantastic or some other stupid pun that is saying you look cool
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
+FUNFACTS
 
-$$ \color{#fcbac8}{ \ \text{Uh games!}} $$
+-I'm a cat person! 
+Which according to the game Drav actually likes cats
+
+-My favorite color is Light pink, Blue, and lavender.
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+Uh games!
+Favorite games: Pizza Game, Work ata pizza place, Evade, Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world, Spiritfarer, Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray.
+
+not a big forsaken fan I only play if friends ask me.
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+SHIPS
+
+-Daisy1337 (Daisy x Guest 1337)
+
+-GloryPizza (Elliot x Pizza guy)
+
+-Seasentry (Lucius x William)
+
+-ContractHunting (Lance x Contractee I made this up)
+
+Soldier x Lance...(For friend.)
+
+*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
+
+<img width="783" height="378" alt="Dravv" src="https://github.com/user-attachments/assets/72364e60-8f47-4415-8a18-032364b6ba6a" />
+
+*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
+
+FAVORITE CHARACTERS
+
+-Qiosk(Pizzagamebeta)
+
+-Pizza guy(Pizzagamebeta)
+
+-Drav(Pizzagamebeta)
+
+-Elliot Builder(Workatapizzaplace)
+
+-Mia Builder(Workatapizzaplace)
+
+-Bendy(BATIM/BATDR)
+
+-Claptrap(Borderlands2)
+
+-Lucius(Pupimidnightmunchie)
+
+-Clockwork(Roblox)
+
+-Itrapped(Roblox)
+
+-Forneus(Cultofthelamb)
+
+-Builderfan(Somethingevilwillhappen)
+
+-Daisy(ThelastGuest)
+
+-Momo(Stray)
+
+Clemintine(Stray)
+
+Stanley(Spiritfarer)
+
+Stanley(thestanleyparable)
+
+<img width="736" height="414" alt="SAUCE IS FUEL (pizza guy)" src="https://github.com/user-attachments/assets/bbb047f8-1882-40be-9fb2-207f65f7f3eb" />
 
 
-$$ \color{#5dabdc}{ \ \text{Favorite games: Pizza Game, Work ata pizza place, Evade.}} $$
-
-
-$$ \color{#5dabdc}{ \ \text{Pupi Midnight Munchies, Monster hunter wilds and Monsterhunter world
-Spiritfarer}} $$
-
-
-$$ \color{#5dabdc}{ \ \text{Minecraft, Cult of the lamb, Viva Piñata, Bendy, Skyrim, FNAF, Slime Rancher, Borderlands2, Stray. Badthings}} $$
-
-
-$$ \color{#5dabdc}{ \ \text{ Not a big forsaken fan only play when asked}} $$
-
-$$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-
-$$ \color{#5dabdc}{ \ \text{SHIPS}} $$
-
-$$ \color{#5dabdc}{ \ \text{-Daisy1337 (Daisy x Guest 1337)}} $$
-
-$$ \color{#5dabdc}{ \ \text{-GloryPizza (Elliot x Pizza guy)}} $$
-
-$$ \color{#5dabdc}{ \ \text{-Seasentry (Lucius x William)}} $$
-
-$$ \color{#5dabdc}{ \ \text{-ContractHunting (Lance x Contractee I made this up)}} $$
-
-$$ \color{#5dabdc}{ \ \text{Soldier x Lance...(For friend.)}} $$
-
-
-$$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-   <img width="883" height="533" alt="download (38)" src="https://github.com/user-attachments/assets/e1f23064-350d-45d6-934c-4e1c9f85230b"/>
-
-$$ \color{#fcbac8}{ \ \text{-ˋˏ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ ˎˊ}} $$
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-$$ \color{#abb1a0}{ \ \text{"...I don't care, I don't care. Just.. eat. Okay?"}} $$
-
-<img width="1000" height="800" alt="bad things (1)" src="https://github.com/user-attachments/assets/3513a07f-a85b-4b4c-bc83-7022c5650d95" />
 
 
 
-
-$$ \color{#fcbac8}{ \ \text{ˋˏ ༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿❀༺༻❁✿ˎˊ}} $$
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧**:･*:･ﾟ✧*:･
