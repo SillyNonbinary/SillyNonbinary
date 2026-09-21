@@ -1,4 +1,4 @@
-[![Hits](https://hits.sh/github.com/SillyNonbinary.svg?label=Hugs&extraCount=163&color=1b3653&labelColor=725d75)](https://hits.sh/github.com/SillyNonbinary/)
+   [![Hits](https://hits.sh/github.com/SillyNonbinary.svg?label=Hugs&extraCount=163&color=2e0405)](https://hits.sh/github.com/SillyNonbinary/)
 
 $$ \color{#451a0b}{ \ \text{"You think I'm a damn joke, don't you? Just a punchline to walk in shadows!'
 'You think you don't need me. Really?}} $$ $$ \color{#7c0000}{ \ \text{𝐑𝐞𝐚𝐥𝐥𝐲?"}} $$
