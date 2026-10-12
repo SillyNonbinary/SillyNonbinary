@@ -12,13 +12,10 @@
 
 
 
-
-
-
-
-
-
-
+<details>
+  <summary>Click here to expand</summary>
+MEOW MEOW MEOW EMWO EMEOWMEOWEMOWMEOMOEMEOEMEMEMEMEMEMEMEM
+</details>
 
 
 <img width="1519" height="1055" alt="Untitled813_20261011232959" src="https://github.com/user-attachments/assets/a84e6b39-f4a3-41a8-ba36-f26188f8006a" />
