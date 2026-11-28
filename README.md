@@ -1,2 +1,3 @@
  [![Hits](https://hits.sh/github.com/SillyNonbinary.svg?label=Hugs&extraCount=163&color=2e0405)](https://hits.sh/github.com/SillyNonbinary/)
-<img width="850" height="800" alt="YAYAYAYYAYA OML I LOVE THISSS" src="https://github.com/user-attachments/assets/ee6d567e-7ae2-47bc-a502-b5bec7e92b75" />
+<img width="392" height="637" alt="biograft_slop-removebg-preview" src="https://github.com/user-attachments/assets/84ea3559-79a6-47d2-999a-c4d802caa8d9" />
+
