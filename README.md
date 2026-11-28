@@ -1,4 +1,4 @@
- [![Hits](https://hits.sh/github.com/SillyNonbinary.svg?label=Hugs&extraCount=163&color=2e0405)](https://hits.sh/github.com/SillyNonbinary/)
+[![Hits](https://hits.sh/github.com/SillyNonbinary.svg?label=Hugs&extraCount=163&color=2e0405)](https://hits.sh/github.com/SillyNonbinary/)
 
  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7AA8A&width=435&lines=%22..+...+....+.....%2C+........%3F%22;%22NEGATIVE.%22;%22....%22" alt="Typing SVG" /></a>
